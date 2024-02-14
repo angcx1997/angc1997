@@ -26,4 +26,4 @@ Technologies/Tools:
 
 Feel free to explore my repositories to see examples of my work and projects I've contributed to. If you have any questions or collaboration opportunities, don't hesitate to reach out!
 
-You can contact me via ang.chin.xian@gmail.com or connect with me on [LinkedIn|www.linkedin.com/in/ang-chin-xian]. Thank you for visiting my profile! 😊
+You can contact me via ang.chin.xian@gmail.com or connect with me on www.linkedin.com/in/ang-chin-xian. Thank you for visiting my profile! 😊
